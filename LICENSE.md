@@ -1,4 +1,4 @@
-
+MindManager for Windows advanced Script: templates & task-integration is the best MindManager for Windows script, featuring templates and task-integration. Powerful, efficient,
 
 
 
